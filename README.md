@@ -2,6 +2,8 @@
 I'm Milan 
 Aspiring Data Analyst • Software Developer • Cybersecurity Enthusiast
 
+I am a cheerful and enthusiastic person. I am able to work effectively and committed to meet deadlines. Always provide a prompt service. Hard working and able to work in a team or on my own. I am self motivated with good logical and critical thinking. I am ready to join your team, learn your system and policies and help keep your organization running and improving. I am resourceful and teachable and ready to help solve problems with your team. 
+
 I’m focused on turning data into actionable insights, building reliable software, and improving system security. I’m actively seeking opportunities or projects in data analysis, software development, or cybersecurity where I can contribute, learn, and grow.
 
 🔭 What I want to do
